@@ -1,0 +1,1 @@
+# GIGABYTE-X3V7
